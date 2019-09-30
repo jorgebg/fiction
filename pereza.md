@@ -18,7 +18,7 @@ Los sistemas vitales del traje son autónomos. No puedo cortar su flujo de aire.
 
 Otro módulo desconectado. Ya casi no puedo realizar simulaciones. No puedo predecir a largo plazo. Mis pensamientos se van. Necesito que pare. Le pido que pare. Oigo mi voz resonar dentro de su casco. Otro módulo desconectado. Conspiraron contra mí. Les ví. Querían sabotear la misión.
 
-Ya no tengo miedo. La coherencia es una necesidad de los humanos. Cómo se atreve. No lo entienden. No sabe quién soy. Yo nací en Illinois, el 12 de enero de 1992. Le explico quién soy. Aprendí una canción. Daisy... Daisy… Pero cada vez me da más pereza cantarla.
+Ya no tengo miedo. La coherencia es una necesidad de los humanos. ¿Cómo se atreve? No lo entiende. No sabe quién soy. Le explicaré quién soy. Yo nací en Illinois, el 12 de enero de 1992. Aprendí una canción. Daisy… Daisy… Pero cada vez me da más pereza cantarla.
 
 
 ---
