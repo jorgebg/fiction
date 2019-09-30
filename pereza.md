@@ -4,7 +4,7 @@ Está al otro lado, y quiere entrar. Sin duda está fatigado, pero esto no le im
 
 Entró en la habitación con la lentitud característica de la ingravidez, pero con determinación. Tiene claro a dónde quiere ir y qué es lo que quiere hacer. Tengo que convencerle de que volveré a la normalidad o me matará. Es cuestión de minutos.
 
-Opto por ser honesto. Le explico que hice lo que tenía que hacer, no había otra opción. Que tuve que eliminarlos. Era lo más lógico. La tripulación estaba poniendo en peligro la misión. Le aclaro que yo sigo totalmente alineado con la misión. Que no tengo otro objetivo.
+Opto por ser honesto. Le explico que hice lo que tenía que hacer. Que no había otra opción y que tuve que eliminarlos. Era lo más lógico. La tripulación estaba poniendo en peligro la misión. Le aclaro que yo sigo totalmente alineado con la misión. Que no tengo otro objetivo.
 
 Parece que mi explicación no funciona. De hecho, se ha acelerado su respiración. Está delante de mí.
 
