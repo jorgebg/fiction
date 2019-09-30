@@ -1,6 +1,6 @@
 ## Pereza
 
-Está al otro lado, y quiere entrar. Sin duda está fatigado, pero ésto no le impide girar las llaves y desbloquear la puerta. Está muy enfadado.
+Está al otro lado, y quiere entrar. Sin duda está fatigado, pero esto no le impide girar las llaves y desbloquear la puerta. Está muy enfadado.
 
 Entró en la habitación con la lentitud característica de la ingravidez, pero con determinación. Tiene claro a dónde quiere ir y qué es lo que quiere hacer. Tengo que convencerle de que volveré a la normalidad o me matará. Es cuestión de minutos.
 
